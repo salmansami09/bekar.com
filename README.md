@@ -1,2 +1,0 @@
-# bekar.com
-bekar.com 
